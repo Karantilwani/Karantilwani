@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Karantilwani. I am an operations analyst at Decentro. I have in 5+ years of experience in Operations, Customer retention, Complaints management and Data science.
+- 👀 I love to code, Play music and learn new things in my free time. 😁
+- 🌱 I’m currently learning coding. I have experience in SQL and Data science but now I want to expand my knowledge by learning different type of Coding languages 😄
+- 💞️ I’m looking to collaborate on projects where I can contribute basis my current knowlege and learn new things.
+- 📧 I can be rached out @email: Karantilwani@gmail.com
+- 📫 My linkedin profile :- https://www.linkedin.com/in/karan-tilwani-273814118/
